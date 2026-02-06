@@ -21,7 +21,7 @@ El alumnado de Latín y Griego está trabajando en un portfolio donde añaden te
 
 ![[Atenas.png]]
 
-El viaje va a ser largo y tendremos mucho rato para matar el tiempo. ¿Qué tal si de cuando en cuando repasas el [[Alfabeto griego|alfabeto]] griego o practicas [[Expresiones griegas|expresiones]] con tus compañeros? Si ya lo miraste antes del viaje, te puede interesar algo de información sobre arquitectura griega.
+El viaje va a ser largo y tendremos mucho rato para matar el tiempo. ¿Qué tal si de cuando en cuando repasas el [[Alfabeto griego|alfabeto]] griego o practicas [[Expresiones griegas|expresiones]] con tus compañeros?
 
 ## Día 2- Corinto, Epidauro, Micenas
 
@@ -35,7 +35,7 @@ Para **Micenas**, su [[El Lineal B|sistema de escritura]] era distinto al griego
 
 ![[Sello.png]]
 
-Vamos a la cuna de los Juegos Olímpicos, por la que mucha [[El fuego olímpico|simbología]] se mantiene a día de hoy. Puede ser un momento genial para mantener un [[Debate sobre los valores del deporte|debate]].
+Vamos a la cuna de los **Juegos Olímpicos**, por la que mucha [[El fuego olímpico|simbología]] se mantiene a día de hoy. Puede ser un momento genial para mantener un [[Debate sobre los valores del deporte|debate]].
 
 Mientras pasamos por **Naupacto**, qué tal si le damos una grata sorpresa a Adriana deteniéndonos en [[Naupakto=Lepanto|Cervantes]].
 
