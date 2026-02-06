@@ -51,7 +51,7 @@ Ya que pasamos por **Tebas**, no está de más recordar lo leído en [[Leamos tr
 
 ![[Atenas 2.png]]
 
-Este día visitaremos o contemplaremos varios edificios relacionados con la cultura y la educación (la universidad, la biblioteca, la academia...). [[La Academia de platón|Academia]], ¿de dónde viene ese nombre?
+Este día visitaremos o contemplaremos varios edificios relacionados con la cultura y la educación (la universidad, la biblioteca, la academia...). [[La Academia de Platón|Academia]], ¿de dónde viene ese nombre?
 
 También visitaremos la [[La acrópolis de Atenas|acrópolis]]. Muchos detalles hay que tener en cuenta aquí.
 
