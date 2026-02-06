@@ -1,0 +1,3 @@
+Aquí tuvo lugar la Batalla de Lepanto, donde nuestro queridísimo autor Miguel de Cervantes fue capturado. ¿Qué os parece si leemos [[Pasaje del capítulo XXXIX|un pasaje]] del Quijote donde aparece un personaje que vivió una experiencia similar a la de su autor?
+
+¿Qué? No, no pienso hablar de la película de "El Cautivo". Qué tostón... Qué mala...
