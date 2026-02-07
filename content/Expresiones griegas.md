@@ -1,6 +1,8 @@
-Expresiones para saludarse o despedirse
+*Volver a [[index|inicio]].*
 
-| Griego               | Pronunciación          | Significado                        |
+## Expresiones para saludarse o despedirse
+
+| Griego               | Pronun.                | Signi.                             |
 | -------------------- | ---------------------- | ---------------------------------- |
 | Γεια σας             | /Yasas/                | ¡Hola! (Saludo formal)             |
 | Γεια σου             | /Yasu/                 | ¡Hola! (Saludo informal)           |
@@ -14,9 +16,9 @@ Expresiones para saludarse o despedirse
 | Ναι                  | /Ne/                   | Sí                                 |
 | Οχι                  | /Óji/                  | No                                 |
 | Αντίο                | /Andío/                | Adiós                              |
-Algunas expresiones más
+## Algunas expresiones más
 
-| Griego                      | Pronunciación               | Significado                |
+| Griego                      | Pronun.                     | Signi.                     |
 | --------------------------- | --------------------------- | -------------------------- |
 | Είμαι απὸ τὴν Ισπανία       | /Ime apó tin Ispanía/       | Soy de España              |
 | Είμαστε Ισπανοί / Ισπανίδες | /Imaste ispaní - ispanides/ | Somos españoles/ españolas |

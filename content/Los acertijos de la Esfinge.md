@@ -1,3 +1,5 @@
+*Volver a [[index|inicio]].*
+
 "¿Qué animal es aquel que por la mañana camina a cuatro patas, al mediodía camina a dos patas y al atardecer camina a tres patas". A este acertijo de la Esfinge, Edipo respondió: "el hombre, pues en el amanecer de sus días, cuando todavía es un bebé, gatea; en la edad adulta, en el mediodía de su vida, camina erguido sobre sus dos piernas; y al atardecer, cuando se viene la vejez, debe apoyarse en un bastón como su tercera pierna."
 
 Al resolver este acertijo, la Esfinge enloqueció y se lanzó desde lo alto de un precipicio. Así Edipo libró las tierras de Tebas de la maligna violencia de este monstruo. ¿Sabes cuántas veces se ha repetido este relato, transformado en cientos de variantes? La literatura de fantasía está lleno de acertijos misteriosos para derrotar a un monstruo. Estoy seguro de que tu libro o serie favoritos tiene alguno. Haz memoria, compártelo con el grupo, coméntamelo, hablemos y entremos en detalles.

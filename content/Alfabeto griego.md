@@ -1,5 +1,6 @@
+*Volver a [[index|inicio]].*
 
-| Letra   | Nombre  | Pronunciación                                               |
+| Letra   | Nombre  | Pronun.                                                     |
 | ------- | ------- | ----------------------------------------------------------- |
 | Α, α    | alfa    | /a/ como en ama                                             |
 | Β, β    | vita    | /v/ como se pronuncia en inglés *voice*                     |

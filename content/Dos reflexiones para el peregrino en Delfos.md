@@ -1,3 +1,4 @@
+*Volver a [[index|inicio]].*
 ## γνῶθι σεαυτόν (gnózi seautón)
 
 Que significa "conócete a ti mismo". Era un mensaje claramente religioso. Quería hacer reflexionar al viajero sobre su verdadera naturaleza mortal, y que comprendiera que está sometido a los dioses y su destino. Conocerte a ti mismo era un paso fundamental para poder saber tu destino, pues, por muy terrible que fuera, no debías impedirlo. Solo eres un simple mortal que no puede evitar el destino impuesto por los dioses. Intentarlo era pecar de Hybris o soberbia, el único pecado conocido por los griegos, lo que acarrearía un castigo mayor por parte de los dioses.

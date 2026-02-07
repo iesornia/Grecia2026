@@ -1,3 +1,5 @@
+*Volver a [[index|inicio]].*
+
 ![[Edipo 1.jpg]]
 
 ![[Edipo 2.jpg]]

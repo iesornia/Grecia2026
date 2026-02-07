@@ -1,3 +1,5 @@
+*Volver a [[index|inicio]].*
+
 Antes de subir, haz un esfuerzo por imaginar cómo era la acrópolis en la Antigüedad. Imagina que llegas a Atenas desde el pireo, el antiguo puerto de la ciudad. Desde allí se divisa la acrópolis, pintada con varios colores, no con el blanco mármol que presenciamos ahora. Además, algo sobresale de entre los templos, Algo que relumbra con la luz del sol. Te acercas y tras pasar por calles de casas bajas, llegas a los pies de la colina y una enorme escalinata te espera. Sobre ella se divisa todavía algo de aquello que brillaba, parece una estatua.
 
 Subiendo las escaleras, la pierdes de vista y al alcanzar la cima te encuentras con los Propíleos, unos soportales que dan acceso por fin a la acrópolis. Al atravesarlos te encuentras de frente con lo que destacaba desde que llegaste a la ciudad: una enorme estatua de bronce que representa a Atenea, patrona de la ciudad, con su escudo, su lanza y su casco. Mucho de esa monumentalidad se ha perdido hoy...

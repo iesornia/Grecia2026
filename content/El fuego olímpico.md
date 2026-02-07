@@ -1,3 +1,5 @@
+*Volver a [[index|inicio]].*
+
 La llama olímpica es conocida por todos, pero, ¿acaso sabes qué simboliza o de dónde surge la idea? Los Juegos Olímpicos eran una festividad panhelénica que reunía a los mejores atletas de la región. Para ello, se imponía una tregua sagrada en la que se debía parar cualquier guerra. Como símbolo de esta paz que se debía mantener en el recinto sagrado de Olimpia, estaba esta llama, aunque no era algo exclusivo de aquí, todas las ciudades griegas mantenían una llama sagrada encendida.
 
 El edificio en el que se encontraban se conoce como pritaneo, que, además, era el lugar de reunión de magistrados. Este fuego estaba consagrado a Hestia, diosa del hogar y no podía apagarse en ningún momento del año. Este fuego representa el fuego del hogar, una forma de expresar hospitalidad a todos aquellos que estuvieran en Olimpia, símbolo de paz mientras estuvieran ahí. Que la llama se apagara representaba el fin de la hospitalidad y la destrucción del hogar, por eso se debía evitar a toda costa.

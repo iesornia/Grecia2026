@@ -1,3 +1,5 @@
+*Volver a [[index|inicio]].*
+
 Platón, ya habréis escuchado a Simón o a óscar hablar de él bastante. Academia, en origen era un nombre propio de la escuela que él fundo. *A posteriori*, en su honor, se convirtió en nombre común para hacer referencia a aquellos centros que dieran algún tipo de formación, las academias. Platón fundó su Academia a las afueras de Atenas, en un bosque donde la tradición señalaba que estaba la tumba de Academo, un héroe griego. En honor a este héroe nombró así su escuela este filósofo. Esto dic Grimal en su diccionario mitológico de este héroe:
 
 ![[Grimal.png]]

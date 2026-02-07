@@ -1,3 +1,5 @@
+*Volver a [[index|inicio]].*
+
 El *homo viator* es un tópico literario por el cual la vida del ser humano se concibe como un viaje, y este viaje por el mundo es el que cambia al protagonista de las historias que trabajan este tópico. Tú puedes ser un *homo viator*, si le sacas partido a esta excursión.
 
 Piensa en este viaje como una manera de descubrirte y conocerte mejor. Verás lugares preciosos, conocerás historias sorprendentes, viajarás por rincones que se asientan en la base de nuestra cultura. Aprovecha el viaje para reflexionar.
