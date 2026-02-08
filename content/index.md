@@ -65,3 +65,4 @@ Vamos a darle vidilla a esas [[Concurso de fotografía por las islas|fotos]].
 
 ![[Vuelo.png]]
 
+Ya leí a mis alumnos el curso pasado [[Ítaca de Constantino Cavafis|este poema]], pero es un cierre espléndido para un viaje a Grecia.

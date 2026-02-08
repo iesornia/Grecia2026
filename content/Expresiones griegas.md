@@ -29,6 +29,7 @@
 | Από πού είσαι;              | /Apó pú ise/                | ¿De dónde eres?            |
 | Πού είναι το μουσείο;       | /Pú ine to musío/           | ¿Dónde está el museo?      |
 | Συγνώμη, δεν καταλαβαίνω    | /Signómi, den katalavéno /  | Perdone, no entiendo       |
+
 Aquí tienes tres enlaces más si quieres aprender más cosas:
 - [Para el viaje](https://servicios.educarm.es/cnice/palladium/datos/Palladium/2_publico/espb21ca4.php#d206)
 - [De trenes](https://servicios.educarm.es/cnice/palladium/datos/Palladium/2_publico/espb21ca5.php#d210) (no iremos en trenes, pero es vocabulario útil en otras circunstancias)
